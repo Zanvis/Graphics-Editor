@@ -1,3 +1,8 @@
+
+
+https://github.com/user-attachments/assets/c2546c94-a93b-4706-bd81-d0d560104027
+
+
 ![image](https://github.com/Zanvis/Graphics-Editor/assets/161169953/92fb327d-f596-45b5-980b-b7d2c06fd550)
 ![image](https://github.com/Zanvis/Graphics-Editor/assets/161169953/92266044-aaaf-4e1a-807e-cf8ac72a59ad)
 ![image](https://github.com/Zanvis/Graphics-Editor/assets/161169953/2e874a72-e762-44d4-9d6e-90b0378878bd)
